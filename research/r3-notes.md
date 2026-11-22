@@ -1,0 +1,10 @@
+- Phumzile Mlambo-Ngcuka died Friday 20 Nov; the presidency set a Category 2 state funeral in a Saturday 21 Nov statement (memorial 24 Nov, burial 28 Nov). Sunday SAnews restates it; flags at half-mast start Sunday morning.
+- Mexico’s capture of Fausto Isidro Meza Flores (“El Chapo Isidro”) and the Sinaloa firefight that killed 11 began Friday night; AP and NBC carried it on 21 Nov.
+- The Pentagon memo limiting military cooperation with Canada was first reported by the Washington Post on Friday; Sunday items are Halifax reaction, not a new order.
+- Strait of Hormuz tanker strikes and Bahrain’s account of an Iranian strike were Saturday 21 Nov events.
+- Florida flooding was already Saturday-night US news after several days of rain (NBC Nightly, 21 Nov), not a new Sunday toll.
+- Australia’s 29-26 win over Wales was Saturday in Cardiff; AFP and AP filed on 21 Nov.
+- BepiColombo’s Mercury burn started 18:24 UTC on 21 Nov (ESA dated 21 Nov); Sunday retellings did not show a separate confirmed milestone.
+- Liverpool vs Manchester United was still in progress at collection (about 2-0 near 35 minutes). NFL Sunday windows had not produced final scores by about 17:15 UTC.
+- The NATO council on the Poland missiles is Monday 23 Nov. Ariane 64 / Amazon Leo (LE-04) is scheduled Monday 23 Nov, not flown Sunday.
+- France’s cost-of-living marches were Saturday (Interior Ministry: 82,500). Johannesburg’s Level 2 water limits were dated 21 Nov.

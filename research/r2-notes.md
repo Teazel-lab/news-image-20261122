@@ -1,0 +1,11 @@
+Date check — excluded or not yet done (do not draw these as 22 Nov results):
+- Kryvyi Rih double-tap (child and paramedic killed, dozens wounded) was Friday night 20 Nov, reported 21 Nov. Kyiv’s large barrage (bridges, deaths) was overnight 19–20 Nov.
+- Russian cargo ship Sparta II was hit Saturday morning 21 Nov in the Gulf of Finland; Finland said the strike was likely Ukraine. Guardian’s 22 Nov briefing is a recap. A suspected Russian helicopter airspace breach was also Saturday.
+- Gaza: civil defence said Israeli fire killed four on Saturday (three in a Tel al-Hawa food vehicle, one by gunfire in Jabalia). Israel said it hit militants. First reported 21 Nov. Hormuz tanker hits, a Bahrain industrial fire, and CENTCOM’s denial of an F-16 strike were Saturday 21 Nov.
+- Basra’s Hartha power-station fire (at least 4 dead, 35 injured) was Saturday 21 Nov. Peru’s M6.7 quake was 00:09 UTC 21 Nov. Croatia’s Zagreb pillow protest was Saturday evening 21 Nov (the patient’s death was 21 Oct).
+- BepiColombo’s Mercury capture burn began 18:24 UTC 21 Nov (03:24 JST on 22 Nov); ESA’s announcement was dated 21 Nov. Do not draw it as a 22 Nov first report.
+- Falcon 9 NROL-136 was listed for 12:23 UTC 22 Nov from Vandenberg; liftoff was not confirmed in pages opened. NFL Sunday games and MotoGP Portimão were still ahead. NATO’s North Atlantic Council on the Poland missile incidents is set for Monday 23 Nov.
+- Lebanon’s Independence Day is 22 Nov, but President Aoun’s withdrawal-and-disarm speech was Saturday evening 21 Nov. No new African security event on 22 Nov was verified.
+- COP31: a draft with no fossil-fuel wording came out after 03:00 local Sunday (AP, 04:05 UTC). The EU/UK rejection and Kurum’s “no new text” (Reuters 12:50 UTC) are later the same day — draw a rejected text, not a signed deal.
+- A Pravda sidebar later on 22 Nov headlined two bodies recovered in Kyiv Oblast; that article was not opened, so the card keeps Zelenskyy’s morning figure of 14 missing and 9 evacuated.
+- Only nine items cleared the date check. Saturday’s wars were still the backdrop, but they were first reported on 21 Nov.
